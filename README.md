@@ -13,8 +13,8 @@ Hi 👋 I'm **Rehan Nadaf**
 
 # 🌐 Socials  
 
-📧 Email: your-email@example.com  
-📸 Instagram: https://instagram.com/your-username  
+📧 Email: rehannadaf0007@gmail.com
+📸 Instagram: https://www.instagram.com/rehan_nadaf_007?igsh=Y2Q0dXR1bXhlaHlt  
 
 ---
 
