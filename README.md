@@ -14,7 +14,7 @@ Hi 👋 I'm **Rehan Nadaf**
 # 🌐 Socials  
 
 📧 Email: rehannadaf0007@gmail.com
-📸 Instagram: https://www.instagram.com/rehan_nadaf_007?igsh=Y2Q0dXR1bXhlaHlt  
+🌐 LinkedIn: https://www.linkedin.com/in/rehan-nadaf-522524311?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app  
 
 ---
 
